@@ -1,2 +1,0 @@
-# StudyingAbroad
-StudyingAbroad website
